@@ -12,7 +12,7 @@ I’d love to connect—whether it’s about tech, apps, or just to say hi!
 
 ---
 
-### :circus_tent: Fun Stuff  
+### 🎮 Fun Stuff  
 - 😄 **Pronouns**: You can call me anything cool, just don’t call me late for a coffee break.  
 - ⚡ **Fun Fact**: I think debugging is like solving a mystery—minus the trench coat and magnifying glass (most days).  
 
